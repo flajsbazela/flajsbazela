@@ -2,7 +2,7 @@
 <!--123
 **flajsbazela/flajsbazela** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Here are some ideas to get you bGZvZGhzeHI=started:
 
 - 🔭 I’m currently working on ...d2huYW5lamNkc3o=Z3N0dmQ=
 - 🌱 I’m currently learning ...
